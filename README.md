@@ -1,0 +1,1 @@
+MERHABALAR Patika+ ders içeriği 
